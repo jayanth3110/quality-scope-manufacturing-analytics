@@ -1,0 +1,1 @@
+# quality-scope-manufacturing-analytics
